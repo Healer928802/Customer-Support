@@ -11,5 +11,5 @@ Key Features You Can Enjoy:
 
 Feel free to reach out—we’ll get back to you as soon as possible and make sure you have everything you need!
 
-You can contact us by email: fishermansassistant@gmail.com.
+You can contact us by email: fishixapp@gmail.com.
 
