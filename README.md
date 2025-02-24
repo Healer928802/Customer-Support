@@ -1,6 +1,6 @@
 # Customer-Support
 
-At Fisherman's Assistant, we’re committed to making your fishing experience as smooth and enjoyable as possible. If you have any questions or need assistance, we’re here to help!
+At Fishix, we’re committed to making your fishing experience as smooth and enjoyable as possible. If you have any questions or need assistance, we’re here to help!
 
 Key Features You Can Enjoy:
 
